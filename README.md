@@ -9,6 +9,3 @@ Meu nome é Leonardo Guilherme zinezi
 ### Você pode entrar em contato comigo pelo meu Email
 
 leoozina197@gmail.com
-
-![]([Uploading currículo.pdf…]())
-
