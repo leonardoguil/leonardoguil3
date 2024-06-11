@@ -11,3 +11,4 @@ Meu nome é Leonardo Guilherme zinezi
 leoozina197@gmail.com
 
 
+[Uploading currículo.pdf…]()
